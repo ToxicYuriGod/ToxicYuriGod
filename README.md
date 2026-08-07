@@ -5,7 +5,7 @@
 
 
 
-   <p align="center">$\color{#5a4b4b}{\textsf{𓏵 what im listening 2 ⤵︎ ◞}}$
+   <p align="center">$\color{#b16f43}{\textsf{𓏵 what im listening 2 ⤵︎ ◞}}$
 
 
   <p align="center"> 
@@ -28,5 +28,5 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#5a4b4b}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
+  <p align="center">$\color{#b16f43}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
 
