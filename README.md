@@ -28,5 +28,5 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#b16f43}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
+  <p align="center">$\color{#b16f43}{\textsf{⋮ "temperance, child."◞}}$
 
