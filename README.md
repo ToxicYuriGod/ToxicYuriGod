@@ -1,16 +1,32 @@
-## Hi there 👋
+<h6 align="center">
 
-<!--
-**ToxicYuriGod/ToxicYuriGod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled449_20260714114858.png" width="55" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+   <p align="center">$\color{#5a4b4b}{\textsf{𓏵 what im listening 2 ⤵︎ ◞}}$
+
+
+  <p align="center"> 
+<p align="center">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=d36464&interchange=false&profanity=false&bar_color=c8acac&bar_color_cover=false">
+  </a>
+</p>
+
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled448_20260714114824.png" width="550" />
+
+<p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 .ᐟ.ᐟ <a href="https://theknockerwantsyou.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄  ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
+</a>   
+
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled451_20260714121917.png" width="100" />
+
+<h6 align="center">
+
+
+  <p align="center">$\color{#5a4b4b}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
+
