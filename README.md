@@ -19,7 +19,7 @@
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled509_20260807105012.png" width="550" />
 
-<p align="center"> <a href="https://tellauntrhody.atabook.org/">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 .ᐟ.ᐟ <a href="https://ashleygrahamyuri.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄  ⋮</a><a href="https://pronouns.cc/@TOXICYURIGOD">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
+<p align="center"> <a href="https://tellauntrhody.atabook.org/">            ╰┈➤ my atabewk , !   </a><a href="https://github.com/KaliIsLost">           my doll , .<a href="https://ashleygrahamyuri.straw.page">                strawpage . </a><a href="https://pronouns.cc/@TOXICYURIGOD">prns!
 </a>   
 
 
