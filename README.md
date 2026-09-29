@@ -19,7 +19,7 @@
 
 <p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled555_20260928214850.png" width="550" />
 
-<p align="center"> <a href="https://tellauntrhody.atabook.org/">             my ata   </a><a href="https://github.com/KaliIsLost">           my waifu  <a href="https://ashleygrahamyuri.straw.page">                straw </a><a href="https://pronouns.cc/@TOXICYURIGOD">prns
+<p align="center"> <a href="https://tellauntrhody.atabook.org/">             my ata゛   </a><a href="https://github.com/KaliIsLost">           my waifu ゛ <a href="https://ashleygrahamyuri.straw.page">                straw゛ </a><a href="https://pronouns.cc/@TOXICYURIGOD">prns .
 </a>   
 
 
