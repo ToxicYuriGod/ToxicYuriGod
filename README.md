@@ -28,5 +28,7 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#d78ab7}{\textsf{⋮ "temperance, child."◞}}$
+  <p align="center">$\color{#d78ab7}{\textsf{𐔌 ⸝⸝ 𝘮𝘢𝘥𝘴 , 𝘩𝘪𝘯𝘢𝘬𝘰            5𝘵𝘦𝘦𝘯 , 𝘴𝘩𝘦/𝘵𝘩𝘦𝘺 , 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘨𝘪𝘳𝘭𝘧𝘳𝘪𝘦𝘯𝘥 ❤︎ 
+ 𝘴𝘪𝘭𝘦𝘯𝘵 𝘩𝘪𝘭𝘭, 𝘳𝘦𝘴𝘪𝘥𝘦𝘯𝘵 𝘦𝘷𝘪𝘭, 𝘰𝘶𝘵𝘢𝘭𝘴𝘵, 𝘣𝘵𝘥 𝘯𝘦𝘳𝘥 ⪩ ⪨ ꠹ ノ
+}}$
 
