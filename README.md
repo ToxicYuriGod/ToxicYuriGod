@@ -5,7 +5,7 @@
 
 
 
-   <p align="center">$\color{#d78ab7}{\textsf{𓏵 what im listening 2 ⤵︎ ◞}}$
+   <p align="center">$\color{#d78ab7}{\textsf{⠀︵⠀𝘮𝘺 𝘮𝘶𝘴𝘪𝘤  ⤵︎⠀◌Ⳋ𝅄}}$
 
 
   <p align="center"> 
