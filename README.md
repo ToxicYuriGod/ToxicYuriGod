@@ -1,6 +1,6 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled510_20260807110653.png" width="55" />
+<p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled559_20260928215849.png" width="55" />
 
 
 
@@ -17,13 +17,13 @@
 </p>
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled509_20260807105012.png" width="550" />
+<p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled555_20260928214850.png" width="550" />
 
 <p align="center"> <a href="https://tellauntrhody.atabook.org/">            ╰┈➤ my atabewk , !   </a><a href="https://github.com/KaliIsLost">           my doll , .<a href="https://ashleygrahamyuri.straw.page">                strawpage . </a><a href="https://pronouns.cc/@TOXICYURIGOD">prns!
 </a>   
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled508_20260807104916.png" width="100" />
+<p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled552_20260928214235.png" width="260" />
 
 <h6 align="center">
 
